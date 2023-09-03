@@ -1,6 +1,6 @@
 # Hodler Sqvad - Unisciti alla Rivoluzione Bitcoin e Ecologica
 
-Benvenuti in Hodler Sqvad, il punto d'incontro tra Bitcoin e l'impegno ecologico. Siamo un'organizzazione che si impegna a promuovere la consapevolezza sui vantaggi di Bitcoin e sull'importanza della sostenibilità, il tutto attraverso un approccio di moda unico.
+Benvenuti in Hodler Sqvad, il punto d'incontro tra Bitcoin e l'impegno ecologico. Siamo un'organizzazione che si impegna a promuovere la consapevolezza sui vantaggi di Bitcoin e sull'importanza della sostenibilità, il tutto attraverso un approccio di moda unico. Tutti i prodotti sono Made in Italy, bio ed eco-friendly.
 
 ## Chi Siamo
 
